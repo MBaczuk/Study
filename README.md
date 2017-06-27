@@ -16,10 +16,15 @@
   * [Mosiah 4:6](https://www.lds.org/scriptures/bofm/mosiah/4?lang=eng) : 5 Attributes of God. Goodness, Power, Wisdom, Patience, Longsuffering 
 ## 6. Incomplete. Evil.
 ## 7. Complete. Rest. Whole. Perfection.
-  * [Mosiah 25:23](https://www.lds.org/scriptures/bofm/mosiah/25?lang=eng) : 7 Churches in Zarahemla
+  * [Mosiah 25:23](https://www.lds.org/scriptures/bofm/mosiah/25.23?lang=eng#p22) : 7 Churches in Zarahemla
   * [BD. Enoch](https://www.lds.org/scriptures/bd/enoch.html?lang=eng&letter=E) : Encoh was the 7th from Adam.
   * [Genesis 1 and 2](https://www.lds.org/scriptures/ot/gen/1?lang=eng) : 7 Creative Periods.
   * God rested on the 7th day.
+  * [2 Nephi 14:1](https://www.lds.org/scriptures/bofm/2-ne/14.1?lang=eng#p1) : 7 Women shall take hold of One Man
+  * [3 Nephi 4:4](https://www.lds.org/scriptures/bofm/3-ne/4.4?lang=eng#p3) : Nephites had enough provisions to live for 7 years.
+  * [Alma 18:16](https://www.lds.org/scriptures/bofm/alma/18.16?lang=eng#p15) : Ammon Slew 7 men.
+  * [2 Nephi 21:15](https://www.lds.org/scriptures/bofm/2-ne/21.15?lang=eng#p14) : Smite the 7 streams.
+  * [Revelation 1:4,11-13,16,20](https://www.lds.org/scriptures/nt/rev/1.4,11-13,16,20?lang=eng#p4) : Alot of 7's in Revelations
 ## 8. New Beggining. Baptism. Witness of Salvation
   * [Mosiah 4:6-7](https://www.lds.org/scriptures/bofm/mosiah/4?lang=eng) : 5 plus 3 equals 8. Formula for salvation, What Christ is, WHat we need to do. 
   * [JST Gen. 17:11](https://www.lds.org/scriptures/jst/jst-gen/17.html?lang=eng) : Age of Accountability is 8
@@ -34,6 +39,9 @@
   * [Luke 9:28](https://www.lds.org/scriptures/nt/luke/9.28?lang=eng#p27) : Transfiguration after 8 days
   * [1 Peter 3:20](https://www.lds.org/scriptures/nt/1-pet/3.20?lang=eng#p19) : 8 souls saved by water (Noah and the flood)
   * [D&C 84:28](https://www.lds.org/scriptures/dc-testament/dc/84.28?lang=eng#p27) : John was ordained by an angel when he was 8 days old
+  * [Genesis 21:4](https://www.lds.org/scriptures/ot/gen/21.4?lang=eng#p3) : Isaac circumcised when he was 8 days old
+  * [Genesis 17:12](https://www.lds.org/scriptures/ot/gen/17.12?lang=eng#p11) Law to be circumcised when your 8
+  * [2 Chronicles 29:17](https://www.lds.org/scriptures/ot/2-chr/29.17?lang=eng#p16) : House of the Lord sanctified on the 8th day
 ## 9. Posterity
 ## 10. Spiritual Perfection. Part of the Whole.
 ## 12. Government. Authority. Priesthood. 
