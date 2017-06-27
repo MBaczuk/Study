@@ -31,6 +31,8 @@
   * [John 20:26](https://www.lds.org/scriptures/nt/john/20.26?lang=eng#p25) : Thomas didnt believe the Apostles witness of Christ, Christ then appeared to Thomas 8 days later.
   * [Luke 2:21](https://www.lds.org/scriptures/nt/luke/2.21?lang=eng#p20) : And when eight days were accomplished for the circumcising of the child
   * [Acts 9:33](https://www.lds.org/scriptures/nt/acts/9.33?lang=eng#p32) : Eneas was healed by Peter after being in his bed for 8 years.
+  * [Luke 9:28](https://www.lds.org/scriptures/nt/luke/9.28?lang=eng#p27) : Transfiguration after 8 days
+  * [1 Peter 3:20](https://www.lds.org/scriptures/nt/1-pet/3.20?lang=eng#p19) : 8 souls saved by water (Noah and the flood)
 ## 9. Posterity
 ## 10. Spiritual Perfection. Part of the Whole.
 ## 12. Government. Authority. Priesthood. 
