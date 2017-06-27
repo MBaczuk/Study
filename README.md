@@ -33,6 +33,7 @@
   * [Acts 9:33](https://www.lds.org/scriptures/nt/acts/9.33?lang=eng#p32) : Eneas was healed by Peter after being in his bed for 8 years.
   * [Luke 9:28](https://www.lds.org/scriptures/nt/luke/9.28?lang=eng#p27) : Transfiguration after 8 days
   * [1 Peter 3:20](https://www.lds.org/scriptures/nt/1-pet/3.20?lang=eng#p19) : 8 souls saved by water (Noah and the flood)
+  * [D&C 84:28](https://www.lds.org/scriptures/dc-testament/dc/84.28?lang=eng#p27) : John was ordained by an angel when he was 8 days old
 ## 9. Posterity
 ## 10. Spiritual Perfection. Part of the Whole.
 ## 12. Government. Authority. Priesthood. 
