@@ -28,3 +28,17 @@
   * [Helaman 5:19](https://www.lds.org/scriptures/bofm/hel/5.19?lang=eng#p18) : 8 thousand Lamanites were Baptized
   * [Mosiah 23:3](https://www.lds.org/scriptures/bofm/mosiah/23.3?lang=eng#p2) : Alma and his people fled 8 days in the wilderness.
   * [1 Nephi 17:4](https://www.lds.org/scriptures/bofm/1-ne/17.4?lang=eng#p3) : Took them 8 years to get to the land Bountiful Before leaving on the Boat.
+  * [John 20:26](https://www.lds.org/scriptures/nt/john/20.26?lang=eng#p25) : Thomas didnt believe the Apostles witness of Christ, Christ then appeared to Thomas 8 days later.
+  * [Luke 2:21](https://www.lds.org/scriptures/nt/luke/2.21?lang=eng#p20) : And when eight days were accomplished for the circumcising of the child
+  * [Acts 9:33](https://www.lds.org/scriptures/nt/acts/9.33?lang=eng#p32) : Eneas was healed by Peter after being in his bed for 8 years.
+## 9. Posterity
+## 10. Spiritual Perfection. Part of the Whole.
+## 12. Government. Authority. Priesthood. 
+## 14. Mesianic Number.
+## 24. Heavinly Government. Otherside.
+## 26. Name of the Lord.
+## 40. Spiritual Preperation. Trial. Test.
+## 42. Antichrist. Evil. Mans Opposition to God.
+## 50. Jubilee. Deliverence.
+## 70. Gods Administration of the World. Nations.
+## 100. Highest Possible Number of Expression.
