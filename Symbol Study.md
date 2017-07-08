@@ -53,4 +53,4 @@
 ## 50. Jubilee. Deliverence.
 ## 70. Gods Administration of the World. Nations.
 ## 100. Highest Possible Number of Expression.
-#### Get SMart Dummy
+#### //Get SMart Dummy//
